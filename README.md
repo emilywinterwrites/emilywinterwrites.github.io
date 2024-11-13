@@ -1,6 +1,6 @@
 # Emily Winter
 ## Writer & Cellist
 
-![EmilyWinter2023](https://github.com/user-attachments/assets/aef3ce5a-5fc8-473a-8765-0d2d20fe0507)
+![EmilyWinter2023](https://github.com/user-attachments/assets/8fdb6b15-ce73-472a-b58a-6397df9bdc81)
 ###### Photo credit: Carl Bundesen
 
